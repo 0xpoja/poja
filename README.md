@@ -9,8 +9,7 @@ its begin!!!
 yo the moon soon!!!h
 bitcoin to the moon!g
 1232442343jh
-sxdfvdzsfvbgfgfhigohkj
-erghsrtyjszytjnhfbfhijghfbhhj
+sxdfvdzsfvbgfgfhigohkjj
 fvdgbfgtb4546vdfvfb14gg;hhyhkhgjky
 vsdfv4sd56vsdvsdvfvlujklvfdvggrhghujhhk
 bfgbfedhrh572bdcfgbnbgl;ktygyjkyhbhyd
