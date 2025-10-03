@@ -7,8 +7,7 @@ good day!!!
 let's go!!!
 its begin!!!
 yo the moon soon!!!hkht
-bitcoin to the moon!gjyhhkydjsdfg
-1232442343jhj;ljgjfrg
+bitcoin to the moon!gjyhhkydjsdfgf
 sxdfvdzsfvbgfgfhigohkjjjlymhjhlhgf
 fvdgbfgtb4546vdfvfb14gg;hhyhkhgjkylhhjhhhomgkggr
 vsdfv4sd56vsdvsdvfvlujklvfdvggrhghujjhhkjjhljhhhggghgtg
