@@ -8,9 +8,7 @@ let's go!!!
 its begin!!!b
 yo the moon soon!!!hkhtv
 bitcoin to the moon!gjyhhkydjsdfgff
-sxdfvdzsfvbgfgfhigohkjjjlymhjhlhgff
-fvdgbfgtb4546vdfvfb14gg;hhyhkhgjkylhhjhhhomgkggrf
-vsdfv4sd56vsdvsdvfvlujklvfdvggrhghujjhhkjjhljhhhggghgtg
+sxdfvdzsfvbgfgfhigohkjjjlymhjhlhgffh
  gnfgsnfgbnazfgbbfgblujjjkjhhjhghthhnggflklhgjhjhfbjkggjhglrgglghff
 sergwerghehetfllj6jfhghk,jl'p;hhhhjlkhikjkjftggfgetujjgggfhggtr
 ggbhgfhr54khjghjhgtrykkhlkhhhhjhh;fgyh;jg;fgfgfffggg6yhgt
